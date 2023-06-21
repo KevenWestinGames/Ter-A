@@ -1,0 +1,2 @@
+# Ter-A
+atividade 
